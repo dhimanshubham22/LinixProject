@@ -6,6 +6,9 @@ custom command
 
 <img width="328" alt="image" src="https://github.com/dhimanshubham22/LinixProject/assets/128880084/2d129781-e528-4686-b5d4-a3db80eb6d1a">
 
+<img width="259" alt="image" src="https://github.com/dhimanshubham22/LinixProject/assets/128880084/6b60924d-c7d6-4826-93be-af1c762a010e">
+
+
 
 
 
